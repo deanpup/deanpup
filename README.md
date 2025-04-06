@@ -1,5 +1,6 @@
 ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌   ‌  ‌  ‌ [atabook](https://squiirrel.atabook.org) ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌    ‌‌  ‌  ‌   ♰‌  ‌  ‌  ‌  ‌‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌[strawpage](https://squiirrel.straw.page/)
-![1000117838](https://github.com/user-attachments/assets/afcc8f3e-6631-49f9-973c-5c78c8867444)
+![20241124_231509](https://github.com/user-attachments/assets/de30e609-dbeb-43a0-aed5-6db99091c9dd)
+
 ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  
 ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌ ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  [rentry](https://rentry.co/deanpup) ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌ ‌  ‌  ‌  ‌
 ‌  ‌‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌ ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌ ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌  ‌    ≻───── ⋆✩⋆ ─────≺
